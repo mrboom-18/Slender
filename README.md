@@ -210,4 +210,4 @@ Slender is available as a full free version that includes all features and updat
 Don't miss out on the chance to uncover the dark mysteries of Slender. **Download Slender for free today and face your fears!**
 
 ---
-**Last updated:** 2026-10-07 22:38:41 UTC
+**Last updated:** 2026-10-08 02:27:57 UTC
